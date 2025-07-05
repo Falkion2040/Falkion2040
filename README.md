@@ -1,4 +1,4 @@
 - I primarily recreate music using the Fire Emblem: the Sacred Stones (FE8) soundfont for insertion
 - Most of my covers are from other FE games but I occasionally branch out different games/media
-- I am willing to take requests, and I am easily reached through Discord - falkion2040  
+- I am willing to take requests, and I am easily reached through Discord (falkion2040) or email (squiglius@gmail.com)  
 - Other than that, I have very limited experience in coding outside of classes and engineering research
